@@ -1,2 +1,2 @@
-# shreyasbapat.github.io
+# spino17.github.io
 Personal Webpage
